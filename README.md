@@ -1,2 +1,2 @@
-# Nirmal_G_Thelly-_horizon_s2
+# Nirmal_G_Thelly_horizon_s2
 Horizon Software Team Recruitment Tasks
